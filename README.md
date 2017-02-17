@@ -1,1 +1,1 @@
-Go to amcneel.me to view!
+Viewable at amcneel.me
